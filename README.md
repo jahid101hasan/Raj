@@ -1,0 +1,2 @@
+# Raj
+For a busy entrepreneur like you, time is gold. You may not waste your time on grunt work; you have better things to do than spend hours typing! I can help you free up your time by taking over the responsibility of all your data entry, copy-paste, web research, or any other recurring job. I am detail-oriented and super fast. I will ensure we are on the same page about any tasks you will assign me, so we both save time and effort.
