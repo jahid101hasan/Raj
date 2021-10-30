@@ -6,18 +6,31 @@ For a busy entrepreneur like you, time is gold. You may not waste your time on g
 
 Here are the services I offer:
 Data Entry
+
 Data Mining
+
 Excel Data Entry
+
 Copy Paste Work
+
 Data Conversion
+
 Business Card Entry
+
 PDF to Excel or Word
+
 JPEG to Excel or Word
+
 Typing in Excel or Word
+
 Online or Offline Data Entry
+
 E-commerce Products Listing
+
 Web Research and Web Scrapping
+
 Data Collection from Linkedln/Instagram
+
 Property Research, Public Record Search
 
 
